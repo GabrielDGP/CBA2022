@@ -14,7 +14,7 @@ https://youtu.be/aVOPoRot50c
 
 ![image](https://user-images.githubusercontent.com/26473609/186461285-a484b183-52b8-4a3d-9d2f-b5ab67391298.png)
 
-![image](https://user-images.githubusercontent.com/26473609/186461355-0b2231aa-fad7-483b-bc49-5616929529ea.png)
+![Slide5](https://user-images.githubusercontent.com/26473609/187050485-19679aee-20cf-46c0-8417-dfb14486fdff.png)
 
 ![image](https://user-images.githubusercontent.com/26473609/186461512-a11d7d88-719c-4abc-b0af-dc669b7bc3d7.png)
 
